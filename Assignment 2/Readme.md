@@ -1,1 +1,1 @@
-
+This video is the result of hard work by the entire team. Regarding videos, everyone has put forward a lot of opinions on how to shoot, how to edit and how to present the best effect, etc. I also learned the ideas for video shooting, what aspects should be paid attention to when shooting, and what should be done in the video to present what you want to express to the audience.
